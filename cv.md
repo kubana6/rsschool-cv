@@ -1,6 +1,6 @@
 # Anton Lappo 
 
-*Phone number: +375295310248, email: kubana6@gmail.com*
+*Phone number: +375295310248, email: kubana6@gmail.com, telegram: @antonlappo*
 ## About me
 My goal is to become a sought-after specialist. My priority is Family and self-development.
 
